@@ -2,9 +2,8 @@
 
 宅男福利，爽到不能呼吸！
 
-来路地址：http://www.233dh.xyz
-
-收录地址：http：// www.233dh1.xyz
+来路地址：http://www.233dh.xyz/
+收录地址：http://www.233dh1.xyz/
 
 导航请放置前五，视频放置前三，其他位置不收!
 
